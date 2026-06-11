@@ -1,1 +1,0 @@
-# 2026_B_KKP_PZPI_23_7_Kulykov_O_V
